@@ -1,4 +1,4 @@
-Hello, everyone. I am currently unactv
+Hello, everyone. I am currently unactive
 I am starting a youtube channel, and I will upload 
 progects when that is running smoothly. when it is, though
 I will try to make some cool programs
